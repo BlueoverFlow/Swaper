@@ -1,4 +1,3 @@
 # Swaper
-# Check this youtube Video:
-# http://chuxoast.com/4mhG
-# http://ceesty.com/ea4b9y
+# My free into cource to containers + emulator:
+# https://dlsharefile.com/file/768850961
